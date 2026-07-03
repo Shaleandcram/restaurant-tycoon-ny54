@@ -1,4 +1,4 @@
-#  
+#  vip Scripts for restaurant tycoon 3 is the best restaurant tycoon 3 Script, featuring invisibility and silent aim. Safe and powerful for all your
 
 
 
